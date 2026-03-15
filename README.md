@@ -1,1 +1,1 @@
-### PET Pulse Hub
+### CliniQ | Health Level Seven
